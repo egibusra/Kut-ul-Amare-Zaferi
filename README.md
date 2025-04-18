@@ -1,10 +1,13 @@
-# kompozizyonlarım
+# kompozisyonlarım
 
 
 
                                   ÇÖLE KAZINAN ZAFER: KUT­'UL AMARE
 
 Tarihin tozlu sayfalarında unutulmaya yüz tutmuş bir kahramanlık destanı vardı: Kut'ul Amare Zaferi. Osmanlı Devleti'nin son dönemlerinde ,dört bir cephede savaşılırken bir yandan da Irak topraklarına altın harflerle yazılmış bir direnişti bu zafer.
+
 1915 yılının kasım ayıydı. İngiliz ordusu Bağdat'a ilerlemeye çalışıyordu. Bağdat'a ilerlemek düşman için büyük bir avantaj anlamına geliyordu. Bu,  Osmanlı'nın Orta Doğu'daki hakimiyetine kolay bir şekilde son vermelerine neden olabilirdi. Ancak bu hedeflerine Osmanlı'nın direnci sayesinde ulaşamadılar. Irak cephesinde süren Selman-ı Pak Muharabesinde başarısız olan İngiliz Ordusu Irak'ın Kut şehrine sığındı. İngilizlere öyle bir darbe yapılmalıydı ki bu, onların Bağdat planlarını alt üst etmeliydi. Bunun üzerine Osmanlı 6. Ordu komutanı emriyle Irak ve Havalisi Komutanı Kut'u kuşattı. Bu İngiliz Ordusunu bozguna uğratacak bir hamleydi.
+
 Aylar süren bu kuşatma , sadece askeri  bir taktik değil. Aynı zamanda sabrın , vatan aşkının ve inancın göstergesiydi. Süren savaş ortamında Osmanlı Ordusu adına birçok karışıklık yaşandı.  İngiliz birlikleri Kut'u kurtarmak adına hücuma geçti. Bu muharebe sıraında askerlerimize geri çekilme emri verilmişti. Bu emri veren 'Sakallı'  Nurettin Bey görevinden alındı. Onun yerine Enver Paşa'nın amcası olan Halil Paşa getirildi. Bu değişiklik direnişin seyrini değiştirecek önemli bir adımdı. Halil Paşa cepheye inmiş, otuz bin kişilik bir takviyenin cepheye katılmasını sağlamıştı. Bu takviye sonunda İngilizler dayanamaz hale gelmişti. İngilizler, Mehmetçiklerin kalbindeki vatan aşkını ve kararlılığı görmüştü. Bu bile onları bozguna uğratmaya yetecek bir değerdi. Halil Paşa'nın önderliğinde kahraman Mahmetçikler zorlu iklim şartlarına ve imlansızlıklara rağmen Kut'a destan yazdı. 29 Nisan 1916'da İngiliz birlikleri teslim oldu, on binlerce asker esir alındı. Evet, bizim tarafımızda da kayıp büyüktü. Fakat her şeye rağmen bu zafer kazanılmıştı. Bu , İngilizlerin uzun yıllar unutamadığı hezimet , bizim içinse unutulmaması gereken bir onurdu. Zaferden sonra Kut topraklarına adını yazdıran Halil Paşa şu satırları yazdı: "Osmanlı sebatının İngiliz inadını kırdığı birinci zaferi Çanakkale' de, ikinci zaferi burada görüyoruz." Yani bu zafer şanlı Çanakkale zaferini anımsatacak derecede büyük ve anlamlıydı. 
+
 Kut'ul Amare yalnızca bir zaferin adı değil; inancın, azminde simgesiydi. Bugün bu zaferi hatırlamak ; geçmişimize sahip çıkmak , kahramanlarımızı anmak demektir. Geçmişte "Çöle Kazınan" bu zafer, yalnızca tarih kitaplarında değil, yüreklerde de yaşamaya devam etmeli; gelecek nesillere onurla aktarılmalıdır.
